@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Tilak! 👋
 I'm Tilak, a Data Analyst with a passion for driving meaningful impact through collaboration and hardwork!
 
 🎓 Master’s in Technology Management @ UIUC
