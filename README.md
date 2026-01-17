@@ -1,5 +1,5 @@
 ## Hi, I'm Tilak! 👋
-A data analyst with a passion for driving meaningful impact through collaboration and hardwork!
+A data and Business analyst with a passion for driving meaningful impact through collaboration and hardwork!
 
 🎓 Master’s in Technology Management @ UIUC
 
